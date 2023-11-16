@@ -1,5 +1,5 @@
 <div id="vip" dir="rtl">  <h3 > <b> 
-   🛑جهت خرید فیلترشکن اینجا کلیک کنید 👇 
+   🛑جهت خرید فیلترشکن اینجا کلیک کنید 👇  
   <br>  
 <a  target="_blank" href="https://amngroup1.space/"> www.AMN-VPN.COM </a>
  
