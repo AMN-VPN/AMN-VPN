@@ -1,5 +1,5 @@
-                                                                                                                                                 <div id="vip" dir="rtl">  <h3 > <b> 
- # [ جهت خرید فیلترشکن اینجا کلیک کنید 👈](https://amngroup1.space/)
+
+# [ جهت خرید فیلترشکن اینجا کلیک کنید 👈](https://amngroup1.space/)
 
   **جهت دریافت تخفیفات روزانه در کانال تلگرام ما عضو شوید👈 [AMN VPN Telegram](https://t.me/buyamnvpn) **❤️
 
